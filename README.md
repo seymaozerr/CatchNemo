@@ -11,10 +11,11 @@ Enjoy the game :)
 
 ##
 
-[![Video Açıklaması](https://1drv.ms/v/s!AnkmOIgsvIHqwwtpdd7a4zO9IzHv?e=8ivOEy)](https://1drv.ms/v/s!AnkmOIgsvIHqwwtpdd7a4zO9IzHv?e=8ivOEy)
+https://github.com/seymaozerr/catch-the-nemo/assets/118622171/19fa2055-cc02-4d11-85fd-5958cc4300ac
+
+https://github.com/seymaozerr/catch-the-nemo/assets/118622171/b241b593-5b78-480e-b1dc-ae449be61caf
 
 
-![image](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/915040af-458c-4cdf-8350-8f380370fa6b)   ![image2](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/b12b20dc-5944-4619-b455-322f4aa8ed22)
 
 
 
