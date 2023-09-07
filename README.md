@@ -9,10 +9,7 @@ Enjoy the game :)
 
 ##
 
-![nemo gif](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/2dff45bc-3cd2-4afe-955f-fda35cfabc2b)
-
-
-![İsimsiz video ‐ Clipchamp ile yapıldı](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/d204acdd-1f7d-47a0-bad6-82c5f376ef6e)
+[nemo](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/792ea1c0-8859-49d2-af90-777c7a347128)
 
 
 
