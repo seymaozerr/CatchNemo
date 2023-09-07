@@ -9,7 +9,7 @@ Enjoy the game :)
 
 ##
 
-https://github.com/seymaozerr/catch-the-nemo/assets/118622171/19fa2055-cc02-4d11-85fd-5958cc4300ac
+![nemogif](https://github.com/seymaozerr/catch-the-nemo/assets/118622171/bfa61477-2d13-4f76-8bab-ec5d6732cfaa)
 
 
 
